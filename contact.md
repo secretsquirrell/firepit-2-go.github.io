@@ -1,1 +1,1 @@
-![Contact us](https://firepit2go.wordpress.com/contact/)
+!Contact Us (https://firepit2go.wordpress.com/contact/)
